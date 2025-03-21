@@ -4,8 +4,6 @@
 
 I'm Chizoba a graphic designer with 1+ year of experience in the graphic design industry, I have passion for creating visually stunning designs, I help businesses and individuals bring their brand's essence to life. With a solid foundation in Adobe Creative Suite and a keen eye for detail, I'm dedicated to delivering high-quality designs that exceed expectations.
 
-Here are some ideas to get you started:
-
 Currently, I'm expanding my skill set in data analytics, learning tools like Tableau, Power BI, R, Ms-Excel, and SQL.
 
 Let's collaborate and bring your vision to life.
